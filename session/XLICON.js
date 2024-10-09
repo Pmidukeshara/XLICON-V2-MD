@@ -1,4 +1,1 @@
-/**
- * @XLICON_V2
- * https://github.com/salmanytofficial/XLICON-V2-MD
- */
+Xlicon-v2~ki9ExK5B#prSrT_zvNKlbXOgJp3yCN5qgXyqsMgnYRqVzZPU6jag
